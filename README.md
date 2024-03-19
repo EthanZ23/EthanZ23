@@ -7,4 +7,4 @@ Here are some ideas to get you started:
 - 🔭 I’m currently working on getting better at knowing how to git and passing my classes.
 - 📫 **How to reach me**: my email or [LinkedIn](https://linkedin.com/in/ethan-zambrano-21608a291) 
 - 😄 **Pronouns**: he/him
-- ⚡ **Hobby**: I like to go to the gym.
+- ⚡ **Hobby**: gym...
